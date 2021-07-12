@@ -1,0 +1,3 @@
+- anon account
+- naughty stuff
+- copyleft, naturally.
